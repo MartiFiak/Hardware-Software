@@ -11,5 +11,3 @@ En tout cas great job les dirs labs ;)
 
 ![](https://tenor.com/view/donald-trump-great-job-thumbs-up-yeah-yes-gif-13603156.gif =250x200)
 
-
-
